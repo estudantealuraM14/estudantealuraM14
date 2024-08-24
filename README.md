@@ -1,16 +1,38 @@
-## Hi there 👋
+### Boas vindas ao meu perfil🤯
 
-<!--
-**estudantealuraM14/estudantealuraM14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+O meu nome é Manuela
 
-Here are some ideas to get you started:
+Estou desenvolvendo scratch é Java script
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![bts jin ](https://media.tenor.com/icRBNx9_yAAAAAAi/namjoon-bts.gif)
+
+meu **curriculo profissional**.
+
+https://drive.google.com/drive/home
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
